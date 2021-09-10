@@ -1,3 +1,3 @@
-# Naveksoft-Design-Materials
+# Naveksoft Design Materials
 
 Brand assets.
